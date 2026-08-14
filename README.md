@@ -44,4 +44,4 @@ Open to opportunities and collaborations in:
 * Fullstack AI applications
 
 📍 Based in Shanghai (preferred)  
-📫 Email: sungb01@foxmail.com
+📫 Email: [weix74841@gmail.com](weix74841@gmail.com)
